@@ -5,8 +5,11 @@
 ### Monday 7th November
 
 12.00: Lunch w/ GDSL team (provided by G&P), 9th Floor, Roxby Building
+
 13.00: GDSL/KRIHS introduction lightning talks, Venue TBC 
+
 3.00: DIF tour (Alex to organise)
+
 4.00: Pizza and Drinks w/ KRIHS/GDSL
 
 ### Tuesday 8th November
